@@ -1,0 +1,1 @@
+Hello! for play this project, use dollchan.net website! You need to make HZ in 4500, or it gonna be not original! This project called (TOY-BRADAR) because is making funk of Heyselcuk on tiktok. Play and edit i u wanted!
